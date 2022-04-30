@@ -10,5 +10,4 @@
 
 📫 How to reach me: prafulvishwakarmaq@gmail.com
 
- ⚡ Fun fact: I love FRIENDS!! 
 
